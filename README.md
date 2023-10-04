@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **luckysingh250305@gmail.com**
 
-- ⚡ Fun fact **Introvertly extrovert 🤭**
+- ⚡ Fun fact **Introverted extrovert 🤭**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
