@@ -6,6 +6,7 @@
 - 🌱 I’m currently learning **Programming Languages and Problem Solving**
 
 - 💬 Ask me about **Python**
+- 💬 Ask me about **Java**
 
 - 📫 How to reach me **luckysingh250305@gmail.com**
 
